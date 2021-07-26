@@ -1,1 +1,0 @@
-# MDC_TIENDA
